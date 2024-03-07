@@ -1,6 +1,6 @@
 # 😎 olá meu nome é trfyqrt7
 
- 🤫meu email de contato é patolinodovasco9@gmail.com
+ 🤫meu email de contato é tryqrt@gmail.com
  
  ⌨️estou querendo bastante aprender sobre progamação pra fazer jogos ou sites 
  
